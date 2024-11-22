@@ -35,7 +35,7 @@ Estou sempre buscando novas formas de aprender e me desafiar. Se você quiser tr
 
 ## 📬 Conecte-se comigo
 
-- 💼 [LinkedIn](https://www.linkedin.com/in/seuperfil/](https://www.linkedin.com/in/siqueiradiegoo/))  
+- 💼 [LinkedIn](https://www.linkedin.com/in/siqueiradiegoo/)  
 - 📧 [Email](diegosiqueira003@gmail.com)  
 
 
